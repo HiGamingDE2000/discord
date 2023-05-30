@@ -1,3 +1,1 @@
-# discord
-
-hi
+[join](https://dsc.gg/higaming)
